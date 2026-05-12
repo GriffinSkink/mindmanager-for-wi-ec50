@@ -1,4 +1,4 @@
-# 
+# Get the ultimate MindManager for Windows tool with MindManager for Windows elite Tool: collaboration & Gantt-view. Featuring collaboration and Gantt-view, it's the best choice for
 
 
 
